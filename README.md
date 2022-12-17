@@ -6,7 +6,7 @@
 
 💬 Ask me about Web Technologies.
 
-📫 How to reach me: lya440676@gmail.com, +201208611892.
+📫 How to reach me: lya440676@gmail.com, +201125963223.
 
 😌 I love coding, gaming, reading, drawing and more...
 
